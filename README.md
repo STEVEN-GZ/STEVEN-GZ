@@ -1,10 +1,4 @@
 - 👋 Hi, I’m @STEVEN-STORE
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-
-<!---
-STEVEN-STORE/STEVEN-GZ is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+- 💾 Ingin,Membeli Sc Bot Wa Cukup Wa https://wa.me/6289522911752😎
+- 📰 Yok Beli Sc nya Murah Kok,Jangan lupa beli SC Nya Guys👍
+- 📱 Jangan Lupa Subscribe STEVEN STORE Guys🙏
